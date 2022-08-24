@@ -1,1 +1,1 @@
-i will excel
+i will succeed
